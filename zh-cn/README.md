@@ -1,5 +1,5 @@
 ## Bing Wallpaper
-![](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&w=1000)Today: [英国拉德克里夫图书馆和万灵学院��牛津大学，英格兰 (© atiger/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
+![](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&w=1000)Today: [英国拉德克里夫图书馆和万灵学院，牛津大学，英格兰 (© atiger/Shutterstock)](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)
 |      |      |      |
 | :----: | :----: | :----: |
 |![](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-01-03 [download 4k](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-01-03 [download 4k](https://cn.bing.com/th?id=OHR.TolkienOxford_ZH-CN6331694590_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|![](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&pid=hp&w=384&h=216&rs=1&c=4)2025-01-02 [download 4k](https://cn.bing.com/th?id=OHR.ArdezSwitzerland_ZH-CN5605305240_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4)|
