@@ -1,7 +1,7 @@
 ## Bing Wallpaper
-2026-07-09 | [在沙巴的水稻田，老街，越�� (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
-
 2026-07-09 | [在沙巴的水稻田，老街，越南 (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
+
+2026-07-09 | [在沙巴的水稻田，老街，越�� (© Anujak Jaimook/Getty Images)](https://cn.bing.com/th?id=OHR.SapaVietnam_ZH-CN2178893672_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
 2026-07-08 | [阿蒂特兰湖的日出，危地马拉 (© shayes17/Getty Images)](https://cn.bing.com/th?id=OHR.LakeAtitlan_ZH-CN1920221893_UHD.jpg&rf=LaDigue_UHD.jpg&pid=hp&w=3840&h=2160&rs=1&c=4) 
 
